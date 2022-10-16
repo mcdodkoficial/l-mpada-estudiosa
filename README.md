@@ -1,2 +1,2 @@
-# l-mpada-estudiosa
+# l-mpada-estudioso
 Sou artista 
